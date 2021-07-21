@@ -1,6 +1,12 @@
 # ![Locations](https://github.com/M4nifest0/M4nifest0_WhatsApp/blob/master/s.png) 
 
 
+##### Warning !!
+----------------------
+-📌 Be careful this app is just for your privacy alert
+
+-📌 Use correctly
+
 ##### Program Features
 ----------------------
 
